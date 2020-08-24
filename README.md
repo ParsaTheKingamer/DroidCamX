@@ -15,7 +15,8 @@ DroidCamX Wireless Webcam Pro جزو برترین برنامه های پلی ا�
 
 <a href="https://www.dl.farsroid.com/ap/DroidCamX-Wireless-Webcam-Pro-6.7.7(Farsroid.com).apk">
 دانلود فایل نصبی پولی برنامه با لینک مستقیم - 2 مگابایت
-</a><a href="">
+</a><a href="https://www.dl.farsroid.com/ap/DroidCamX-Wireless-Webcam-PC-6.2.7(Farsroid.com).zip">
+<br>
 دانلود فایل نصبی ویندوز برنامه با لینک مستقیم - 1 مگابایت
 </a>
 آخرین آپدیت
